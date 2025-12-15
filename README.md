@@ -6,7 +6,7 @@
 
 - 🌱 I'm currently learning **Image Compresson😳**
 
-- 📫 How to reach me **2332151739@qq.com**
+- 📫 How to reach me **wanglianglin210@163.com**
 
 - 📝 I regularly write articles on **[https://blog.csdn.net/m0_71043990](https://blog.csdn.net/m0_71043990)**
 
